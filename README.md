@@ -1,7 +1,7 @@
 ## Hi I am Wei Kiat
 
 🛡️ Y2 Cybersecurity Student at Nanyang Polytechnic <br/>
-👨‍💼 Subcommitee of NYP Infosec club <br/>
+👨‍💼 Subcommittee of NYP Infosec club <br/>
 Reach out to me at  [Linkdin](https://www.linkedin.com/in/loh-wei-kiat/) <br/>
 
 
